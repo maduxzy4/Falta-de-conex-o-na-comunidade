@@ -1,0 +1,1 @@
+# Falta-de-conex-o-na-comunidade
